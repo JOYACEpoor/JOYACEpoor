@@ -1,1 +1,1 @@
-Not a GAY
+A collage student
